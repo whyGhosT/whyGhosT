@@ -1,10 +1,3 @@
-## for u <3
-
-<details>
-  <summary>😳</summary>
-    l <3
-</details>
-
 ## about me xd
 
 **uzatmaya gerek yok kaan olarak bil yeter**
@@ -16,3 +9,13 @@
 ## contact
 
 https://whyghost.github.io
+
+
+
+
+## for u <3
+
+<details>
+  <summary>😳</summary>
+    l <3
+</details>
