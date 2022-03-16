@@ -17,5 +17,5 @@ https://whyghost.github.io
 
 <details>
   <summary>😳</summary>
-    l <3
+    fck u
 </details>
