@@ -9,13 +9,3 @@
 ## contact
 
 https://whyghost.github.io
-
-
-
-
-## for u <3
-
-<details>
-  <summary>😳</summary>
-    fck u
-</details>
