@@ -2,9 +2,9 @@
 
 **uzatmaya gerek yok kaan olarak bil yeter**
 
-## me xdddd
+## xdddd
 
-![VAPORGRAM1643164125966](https://user-images.githubusercontent.com/81658277/153286122-8bcb51bb-6363-4682-accf-3ead93fa62b7.jpg)
+![1630933367_ShirokayaOblozhka_2](https://user-images.githubusercontent.com/81658277/165001416-d2ce6412-ceb8-4bd7-a90b-e14064616cdd.jpg)
 
 ## contact
 
