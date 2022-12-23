@@ -4,7 +4,7 @@
 
 ## xdddd
 
-![1630933367_ShirokayaOblozhka_2](https://user-images.githubusercontent.com/81658277/165001416-d2ce6412-ceb8-4bd7-a90b-e14064616cdd.jpg)
+![tenor (2)](https://user-images.githubusercontent.com/81658277/209357077-d12fc1d4-60ff-4c88-adc7-ec60a0b95708.gif)
 
 ## contact
 
