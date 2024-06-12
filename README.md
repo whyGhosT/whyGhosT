@@ -1,10 +1,8 @@
-## about me xd
+## about me
 
-**uzatmaya gerek yok kaan olarak bil yeter**
+:)
 
-## xdddd
-
-![tenor (2)](https://user-images.githubusercontent.com/81658277/209357077-d12fc1d4-60ff-4c88-adc7-ec60a0b95708.gif)
+https://github.com/whyGhosT/whyGhosT/assets/81658277/ad63b760-0d20-4026-8b4f-608b47a0a688
 
 ## contact
 
